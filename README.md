@@ -33,23 +33,5 @@ I have never been so passionate about a certain food until now. They have so man
 
 In Boston, I feel like there aren’t many gelato and ice cream shops. The only place I order ice cream from is New City Microcreamery; however, nothing compares to Gelato Messina! It brings me genuine happiness whenever I go, and I don’t feel the need to be around anyone when I savour every lick. If you want to check it out, feel free to look at their Instagram page [here](https://www.instagram.com/gelatomessina/)!
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
 
