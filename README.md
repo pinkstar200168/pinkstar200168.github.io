@@ -1,7 +1,7 @@
 # Introverted Interests
 From a young age, I have always enjoyed spending most of my time alone. To be honest, most of my interests stem from the fact that I can engage in these activities independently!
 
-### My 3 hobbies include:
+### My 3 interests include:
 1. Baking
 2. Skiing
 3. Gelato
