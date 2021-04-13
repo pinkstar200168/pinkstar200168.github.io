@@ -1,8 +1,6 @@
-## Welcome to GitHub Pages
+## Introverted Interests
+From a young age, I have always enjoyed spending most of my time alone. To be honest, most of my interests stem from the fact that I can engage in these activities independently!
 
-You can use the [editor on GitHub](https://github.com/pinkstar200168/pinkstar200168.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ### Markdown
 
