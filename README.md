@@ -34,4 +34,4 @@ I have never been so passionate about a certain food until now. They have so man
 In Boston, I feel like there aren’t many gelato and ice cream shops. The only place I order ice cream from is New City Microcreamery; however, nothing compares to Gelato Messina! It brings me genuine happiness whenever I go, and I don’t feel the need to be around anyone when I savour every lick. If you want to check it out, feel free to look at their Instagram page [here](https://www.instagram.com/gelatomessina/)!
 
 
-
+![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS2v3_nIejXLRLmHOFeuKjJFc_SblnhFWU5jQ&usqp=CAU)
