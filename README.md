@@ -14,6 +14,10 @@ During high school, I tried again. I stuck to baking brownies and cookies, becau
 
 My independence also plays a role in this hobby. I strongly dislike baking with other people and having people in the kitchen at the same time as me, because it stresses me out. Last year, during lockdown, I baked more than ever. I would make at least three desserts a week, and everyone at home would always look forward to the next dessert. In Boston, I certainly don’t bake as often, but when I do, I give it to my brother’s friends and they love it so much! It’s crazy to see how far I have come, and I know that this is a very handy as I can always satisfy my sweet tooth.
 
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_3375.jpeg?strip=info&w=2000)
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_4077-2.jpeg?strip=info&w=2000)
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_5634-2.jpeg?strip=info&w=2000)
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_4833-2.jpg?strip=info&w=2000)
 
 ## Skiing
 
@@ -21,6 +25,7 @@ Before I begin, I’d like to let you know I am not very athletic. I am very unc
 
 Two years later, along with hundreds of hours of hard work, I ended up coming first out of over two hundred competitors; however, I’m pretty sure I came fourth in nationals, which disappointed my mum. I honestly didn’t enjoy skiing. I clearly remember the other kids in my group excluded me because I was weird and not popular. Whenever they went on the lift, they would leave me behind. In retrospect, I’m glad that things went the way they did. If I cared about the social aspect more than the actual skiing, I would have lost focus on my primary goal, which was to make every moment count. While the experience wasn’t as bad as it could have been, I’d definitely say it is something I would not want to relive.
 
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_9322-1.jpg)
 
 ## Gelato
 
@@ -32,6 +37,6 @@ Back in Australia, there is a store called Gelato Messina. My obsession started 
 I have never been so passionate about a certain food until now. They have so many specials; I have probably tried over 100 different flavors from that store. My friends and family think this is an unhealthy addiction, and my mum even tried to limit the amount of times we go each week! Whenever I am in the US, one thing I look forward to when I go back home is visiting Gelato Messina. I even figured out this strategy of finding out the daily special before they post the photos at 5pm. Basically, they open at 12pm, and only deliver through one food delivery app, so what I do is check the app around that time and decide whether I want to go. 
 
 In Boston, I feel like there aren’t many gelato and ice cream shops. The only place I order ice cream from is New City Microcreamery; however, nothing compares to Gelato Messina! It brings me genuine happiness whenever I go, and I don’t feel the need to be around anyone when I savour every lick. If you want to check it out, feel free to look at their Instagram page [here](https://www.instagram.com/gelatomessina/)!
-
-
-![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS2v3_nIejXLRLmHOFeuKjJFc_SblnhFWU5jQ&usqp=CAU)
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_5474-1.jpeg?resize=2000,2000&strip=info)
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_1292-1.jpeg?resize=2000,2000&strip=info)
+![image](https://thelifeofanintrovert877500227.files.wordpress.com/2021/02/img_5083-2.jpeg?resize=2000,2000&strip=info)
